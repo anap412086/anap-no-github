@@ -1,1 +1,0 @@
-Eu não consigo avançar. Ó céus! Que trem difícil.
